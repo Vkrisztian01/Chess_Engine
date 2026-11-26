@@ -1,4 +1,4 @@
-Witkoria Bazan 
-Mia Krnić
-Krisztian Vaszary
-Grasiela Atanasova
+Witkoria Bazan: wiktoria-bazan, 
+Mia Krnić: miakrnic, 
+Krisztian Vaszary: Vkrisztian01,
+Grasiela Atanasova: grasiela-atanasova
